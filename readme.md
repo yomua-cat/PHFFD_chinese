@@ -30,6 +30,7 @@ PunkHeart studio 发布了一系列免费资源
 如果您在使用过程中有任何疑问或需要帮助，欢迎通过以下方式联系我们的支持团队：  
 电子邮件：2528797331@qq.com  
 社交媒体：[Weibo@油木然yomua](https://weibo.com/u/7477374871)  
+玩家Q群：[朋克之心PЦПKΉΣΛЯƬ](https://qm.qq.com/q/JasL6CSSYK)
 ---  
 
 PunkHeart开发团队敬上  
