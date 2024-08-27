@@ -14,7 +14,7 @@ PunkHeart studio 发布了一系列免费资源
 > 
 > ![image](image/preview1.jpg)
   
-> ##### 猫宫·又奈：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/绝区零「Z.Z.Z」/猫宫·又奈.zip?sign=RBmC2nm9e8EaRgHc24_rtrb8ILxlU8aZoYOaismjnvs=:0)  
+> ##### 猫宫·又奈：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/%E7%BB%9D%E5%8C%BA%E9%9B%B6%E3%80%8CZ.Z.Z%E3%80%8D/%E7%8C%AB%E5%AE%AB%C2%B7%E5%8F%88%E5%A5%88.zip?sign=RBmC2nm9e8EaRgHc24_rtrb8ILxlU8aZoYOaismjnvs=:0)  
 >
 > ![image](image/preview2.jpg)
 
@@ -32,4 +32,5 @@ PunkHeart studio 发布了一系列免费资源
 社交媒体：[Weibo@油木然yomua](https://weibo.com/u/7477374871)  
 ---  
 
-PunkHeart开发团队敬上
+PunkHeart开发团队敬上  
+文件存储服务来自39Network
