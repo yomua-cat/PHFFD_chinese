@@ -10,13 +10,13 @@ PunkHeart studio 发布了一系列免费资源
 
 > #### 绝区零「Z.Z.Z」：  
 
-> ##### 安比·德玛拉：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/%E7%BB%9D%E5%8C%BA%E9%9B%B6%E3%80%8CZ.Z.Z%E3%80%8D/%E5%AE%89%E6%AF%94%C2%B7%E5%BE%B7%E7%8E%9B%E6%8B%89.zip?sign=pNFp36HBPHaoizhVDPFDsHKSPGdQLr8RWYHMyf3qzuM=:0)  
+> ##### Random Play：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/绝区零「Z.Z.Z」/Random%20Play.zip?sign=lPdIuJj825Bkdv1CaR5_gyozjM9WZQO-UcwsNQ1AUJY=:0)  
 > 
-> ![image](image/128x_1_preview.jpg)
+> ![image](image/Random-Play_preview.jpg)
   
-> ##### 猫宫·又奈：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/%E7%BB%9D%E5%8C%BA%E9%9B%B6%E3%80%8CZ.Z.Z%E3%80%8D/%E7%8C%AB%E5%AE%AB%C2%B7%E5%8F%88%E5%A5%88.zip?sign=RBmC2nm9e8EaRgHc24_rtrb8ILxlU8aZoYOaismjnvs=:0)  
+> ##### 狡兔屋：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/绝区零「Z.Z.Z」/狡兔屋.zip?sign=5Mgc7crdiJvBO-csWroZ2v7u9HIL8lj0c6C33nkh3_k=:0)  
 >
-> ![image](image/128x_2_preview.jpg)
+> ![image](image/gentle-house_preview.jpg)
 
 --- 
 > ## 使用指南  
