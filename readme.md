@@ -18,6 +18,10 @@ PunkHeart studio 发布了一系列免费资源
 >
 > ![image](image/gentle-house_preview.jpg)
 
+> ##### 维多利亚家政：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/绝区零「Z.Z.Z」/维多利亚家政.zip?sign=ymC1YslvtVH0BUh5pWFnRe3lWNa3GaBK0Fb0dw8RRws=:0)  
+>
+> ![image](image/Victoria-Housekeeping_preview.jpg)
+
 --- 
 > ## 使用指南  
 选择您感兴趣的资源，点击相应的链接即可直接下载    
