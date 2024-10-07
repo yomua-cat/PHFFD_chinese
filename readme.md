@@ -22,6 +22,10 @@ PunkHeart studio 发布了一系列免费资源
 >
 > ![image](image/Victoria-Housekeeping_preview.jpg)
 
+> ##### 卡吕冬之子：[「Download」](http://alist.39network.cc/d/yomua/Minecraft%20FREE%20Skins/绝区零「Z.Z.Z」/卡吕冬之子.zip?sign=9u1OHstHLrKAyOdbjFm4SDcxX1VAgfmhaWP3_TBzdIQ=:0)  
+>
+> ![image](image/Sons-of-Calydon_preview.jpg)
+
 --- 
 > ## 使用指南  
 选择您感兴趣的资源，点击相应的链接即可直接下载    
